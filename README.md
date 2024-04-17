@@ -1,2 +1,0 @@
-# janainaSilva
-💫Sobre mim:
